@@ -1,3 +1,3 @@
 ## Summer Internship
 
-<img width="246" height="359" alt="FlyRank Backend AI" src="https://github.com/user-attachments/assets/7b96b363-c222-432f-9282-90186f67e486" />
+<img width="246" height="359" alt="WhatsApp Image 2026-06-29 at 22 02 28" src="https://github.com/user-attachments/assets/521f809c-3236-482b-bd3a-d6096b62f4b9" />
